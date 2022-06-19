@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @anandru123mala. Originally, anandru76, as you knew me in scratch.
+- 👀 I’m interested in scratch and github.
+- 🌱 I’m currently learning github.
+- 💞️ I’m looking to collaborate on nothing.
